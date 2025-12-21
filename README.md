@@ -1,16 +1,15 @@
-## Hi there 👋
+refer to me mainly as: **riyo reeyo reeyolu**
 
-<!--
-**alstaired/alstaired** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+calling me as my heavy kins are heavily appreciated: **azure wifies planetlord 1x1x1x1x player/jon noli bacon**
 
-Here are some ideas to get you started:
+i go by any pronouns, but i prefer **she/her/they/them/it/its**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+usually seen in **mafia games**, **upper docks**, **bakery's patio**, **inside bakery**, **lifesteal area**, or in the **bsd area**.
+
+^ either afk & chilling, or chatting with a friend.
+
+---
+
+whispers are always open. c+h is greatly appreciated.
