@@ -1,6 +1,6 @@
 refer to me mainly as: **riyo reeyo reeyolu**
 
-calling me as my heavy kins are heavily appreciated: **azure wifies planetlord 1x1x1x1x player/jon noli bacon**
+calling me as my heavy kins are heavily appreciated: **azure wifies planetlord 1x1x1x1 player/jon noli bacon pyro**
 
 i go by any pronouns, but i prefer **she/her/they/them/it/its**
 
