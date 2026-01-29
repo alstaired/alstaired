@@ -8,7 +8,7 @@ i go by any pronouns, but i prefer **she/her/he/him/they/them/it/its**
 
 ---
 
-usually seen in **mafia games**, **upper docks**, **bakery's patio**, **inside bakery**, **lifesteal area**, or in the **bsd area**.
+usually seen in **mafia games**, **upper docks**, **bakery's patio**, **inside bakery**
 
 ^ either afk & chilling, or chatting with a friend.
 
