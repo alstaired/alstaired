@@ -1,12 +1,12 @@
+---
+
 refer to me mainly as: **riyo reeyo reeyolu**
 
 can also refer to me as: **azalea reze rizz reece**
 
-calling me as my heavy kins are heavily appreciated: **azure wifies planetlord 1x1x1x1 player/jon noli bacon pyro sniper**
+i would appreciate being referred to as **azure wifies player/jon bacon pyro sniper miss pauling** 
 
-^^ i would prefer being referred to as **azure wifies player/jon bacon pyro sniper** ^_^
-
-i go by any pronouns, but i prefer **she/her/they/them/it/its**
+i go by any pronouns, but i prefer **she/her/he/him/they/them/it/its**
 
 ---
 
