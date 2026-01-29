@@ -4,6 +4,8 @@ can also refer to me as: **azalea reze rizz reece**
 
 calling me as my heavy kins are heavily appreciated: **azure wifies planetlord 1x1x1x1 player/jon noli bacon pyro sniper**
 
+^^ i would prefer being referred to as **azure wifies player/jon bacon pyro sniper** ^_^
+
 i go by any pronouns, but i prefer **she/her/they/them/it/its**
 
 ---
@@ -21,11 +23,3 @@ my current interests are: **team fortress 2**, **block tales**, **the freak circ
 thin ice: **forsaken fandom**, **renheng shippers (hsr)**, **ivandrew shippers (bad things)**
 
 ---
-
-i'm a **griefer btales**, **harlequin tfc**, and **scout tf2** selfshipper. i'm sharing — or i just don't really care. i'm not trying to compete for either of the three characters as i find it obnoxious, so, non-sharing doubles kindly block! ""(·•᷄_•᷅ )
-
-^ i don't talk about selfshipping a lot either. it's kind of a friends things only
-
-*"iwc nonsharing ~~diego/godot armando~~ yumes/fictkins or if you fight over my favourite characters. please"* **exactly this**, but with either of my fictive others. i don't have anything against doubles, but i've been harassed by one & don't want that happening yet again. : )
-
-wise words by a wise person, with that wise person being @eizoar giggles
