@@ -1,5 +1,3 @@
----
-
 refer to me mainly as: **riyo reeyo reeyolu**
 
 can also refer to me as: **azalea reze rizz reece**
