@@ -1,23 +1,24 @@
-refer to me mainly as: **riyo reeyo reeyolu**
+<p align="center"> 
+  <img src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gif" alt="" />
+</p>
 
-can also refer to me as: **azalea reze rizz reece**
+<p align="center">https://rentry.co/reeyolu</p>
 
-i would appreciate being referred to as **azure wifies player/jon bacon pyro sniper miss pauling** 
-
-i go by any pronouns, but i prefer **she/her/he/him/they/them/it/its**
-
----
-
-usually seen in **mafia games**, **upper docks**, **bakery's patio**, **inside bakery**
-
-^ either afk & chilling, or chatting with a friend.
+<p align="center">riyo reeyolu reeyo⠀︻デ═一⠀any / pronouns</p>
 
 ---
 
-whispers are always open. c+h is greatly appreciated!
+<p align="center">usually seen in；mafia games⠀upper docks⠀inside bakery⠀bakery patio</p>
 
-my current interests are: **team fortress 2**, **block tales**, **the freak circus**, **nooby squad**, **spyxfamily**, & **unstable universe**!
-
-thin ice: **forsaken fandom**, **renheng shippers (hsr)**, **ivandrew shippers (bad things)**
+<p align="center">^ either afk & chilling, or chatting with a friend.</p>
 
 ---
+
+<p align="center">whispers are always open. c+h is greatly appreciated!</p>
+
+<p align="center">please do not interact；dni criteria⠀-11⠀23+</p>
+
+
+<p align="center"> 
+  <img src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gif" alt="" />
+</p>
