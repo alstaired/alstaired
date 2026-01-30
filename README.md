@@ -20,7 +20,7 @@
 
 ---
 
-<p align="center">whispers are always open. c+h is greatly appreciated!</p>
+<p align="center">whispers are always open (i reply btw). c+h is appreciated, but not favored for strangers (^_^III) </p>
 
 <p align="center">usually seen in；mafia games⠀upper docks⠀inside bakery⠀bakery patio</p>
 
