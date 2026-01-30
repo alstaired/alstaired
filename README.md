@@ -4,6 +4,8 @@
 
 <p align="center">https://rentry.co/reeyolu</p>
 
+<p align="center">https://reeyolu.atabook.org/</p>
+
 <p align="center">riyo reeyolu reeyo⠀︻デ═一⠀any / pronouns</p>
 
 ---
