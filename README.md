@@ -2,11 +2,14 @@
   <img src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gif" alt="" />
 </p>
 
+
+<img align="left" width="250" src="https://64.media.tumblr.com/1f2d1eab20547ec6823feff2cf8f8a7e/307b1458c92e7b70-90/s100x200/bff45843e44714d32d0b800b3511151f6dbd204b.gif">
+
 <p align="center">https://rentry.co/reeyolu</p>
 
 <p align="center">https://reeyolu.atabook.org/</p>
 
-<p align="center">riyo reeyolu reeyo⠀︻デ═一⠀any / pronouns</p>
+<p align="center">riyo reeyolu reeyo azalea⠀︻デ═一⠀any / pronouns⠀omnisexual demigirl </p>
 
 <p align="center">i also go by : sniper (mick mundy), wifies, azure, bacon, & player (jon) </p>
 
@@ -24,11 +27,13 @@
 
 ---
 
+<img align="right" width="250" src="https://64.media.tumblr.com/ec9fcf691a7f4bad36adbe3a5a13e659/307b1458c92e7b70-1d/s100x200/ce644557b77e03867ebcf6abc34795e71b01d225.gif">
+
 <p align="center">whispers are always open (i reply btw). c+h is appreciated, but not favored for strangers (^_^III) </p>
 
 <p align="center">usually seen in；mafia games⠀upper docks⠀inside bakery⠀bakery patio</p>
 
-<p align="center">^ either afk & chilling, or chatting with a friend.</p>
+<p align="center">^ either afk, offtab, or chatting with a friend. whispering to interact is preffered</p>
 
 <p align="center">please do not interact；dni criteria⠀-11⠀23+</p>
 
