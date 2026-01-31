@@ -3,7 +3,7 @@
 </p>
 
 
-<img align="left" width="259" src="https://64.media.tumblr.com/1f2d1eab20547ec6823feff2cf8f8a7e/307b1458c92e7b70-90/s100x200/bff45843e44714d32d0b800b3511151f6dbd204b.gif">
+<img align="left" width="265" src="https://64.media.tumblr.com/1f2d1eab20547ec6823feff2cf8f8a7e/307b1458c92e7b70-90/s100x200/bff45843e44714d32d0b800b3511151f6dbd204b.gif">
 
 <p align="center">https://rentry.co/reeyolu</p>
 
@@ -27,7 +27,7 @@
 
 ---
 
-<img align="right" width="259" src="https://64.media.tumblr.com/ec9fcf691a7f4bad36adbe3a5a13e659/307b1458c92e7b70-1d/s100x200/ce644557b77e03867ebcf6abc34795e71b01d225.gif">
+<img align="right" width="265" src="https://64.media.tumblr.com/ec9fcf691a7f4bad36adbe3a5a13e659/307b1458c92e7b70-1d/s100x200/ce644557b77e03867ebcf6abc34795e71b01d225.gif">
 
 <p align="center">whispers are always open (i reply btw). c+h is appreciated, but not favored for strangers </p>
 
