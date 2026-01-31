@@ -8,6 +8,8 @@
 
 <p align="center">riyo reeyolu reeyo⠀︻デ═一⠀any / pronouns</p>
 
+<p align="center">i also go by : sniper (mick mundy), wifies, azure, bacon, & player (jon) </p>
+
 ---
 
 <div align="center">
