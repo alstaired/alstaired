@@ -29,11 +29,11 @@
 
 <img align="right" width="250" src="https://64.media.tumblr.com/ec9fcf691a7f4bad36adbe3a5a13e659/307b1458c92e7b70-1d/s100x200/ce644557b77e03867ebcf6abc34795e71b01d225.gif">
 
-<p align="center">whispers are always open (i reply btw). c+h is appreciated, but not favored for strangers (^_^III) </p>
+<p align="center">whispers are always open (i reply btw). c+h is appreciated, but not favored for strangers </p>
 
-<p align="center">usually seen in；mafia games⠀upper docks⠀inside bakery⠀bakery patio</p>
+<p align="center">usually in；mafia⠀upper docks⠀inside bakery⠀bakery patio</p>
 
-<p align="center">^ either afk, offtab, or chatting with a friend. whispering to interact is preffered</p>
+<p align="center">^ either afk, offtab, or chatting with a friend. always w2i ty</p>
 
 <p align="center">please do not interact；dni criteria⠀-11⠀23+</p>
 
