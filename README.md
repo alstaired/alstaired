@@ -25,6 +25,9 @@
   <img src="https://64.media.tumblr.com/be65d83f9b165d298aa074cb5bed5699/c8eb0991c1f80ef1-5c/s250x400/52aa7cc88674d672037de594b00df2209b7f6838.gif" width="20%%" />
 </div>
 
+<p align="center">7/6/24 & 1/13/19⠀</p>
+  <p align="center"> i selfship w them but i don't make it my entire personality 🥹✌️</p>
+
 ---
 
 <img align="right" width="259" src="https://64.media.tumblr.com/ec9fcf691a7f4bad36adbe3a5a13e659/307b1458c92e7b70-1d/s100x200/ce644557b77e03867ebcf6abc34795e71b01d225.gif">
