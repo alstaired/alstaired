@@ -26,7 +26,7 @@
 </div>
 
 <p align="center">7/6/24 & 1/13/19⠀</p>
-  <p align="center"> i selfship w them but i don't make it my entire personality 🥹✌️</p>
+  <p align="center"> i selfship with them but i don't make it my entire personality. i don't talk ab it much</p>
 
 ---
 
