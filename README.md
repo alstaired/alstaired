@@ -7,3 +7,6 @@ i go by any pronouns, but i prefer feminine pronouns
 demigirl & omnisexual
 
 find me in upper docks, & bakery's patio! and sometimes in mafia games
+<p align="center">https://rentry.co/reeyolu</p>
+
+<p align="center">https://reeyolu.atabook.org/</p>
