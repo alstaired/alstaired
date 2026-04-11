@@ -3,4 +3,6 @@
 </p>
 <p align="center">ac: complete_clownery (tumblr) </p>
 
-<p align="center">https://rentry.co/reeyolu https://reeyolu.atabook.org/</p>
+<p align="center">
+  <a href="https://rentry.co/reeyolu">rentry</a>　<a href="https://reeyolu.atabook.org/">sign ata</a>
+</p>
