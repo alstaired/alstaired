@@ -1,12 +1,6 @@
-Hi, revamping!
+<p align="center">
+  <img src="https://file.garden/Zq3GPYQkHypFo3Wi/ac%3A%20complete_clownery%20(tumblr)" width="300" height="200">
+</p>
+<p align="center">ac: complete_clownery (tumblr) </p>
 
-i go by riyo mainly.
-i also like to be called: shelly, azure, wifies, player (jon), & reze
-
-i go by any pronouns, but i prefer feminine pronouns
-demigirl & omnisexual
-
-find me in upper docks, & bakery's patio! and sometimes in mafia games
-<p align="center">https://rentry.co/reeyolu</p>
-
-<p align="center">https://reeyolu.atabook.org/</p>
+<p align="center">https://rentry.co/reeyolu https://reeyolu.atabook.org/</p>
