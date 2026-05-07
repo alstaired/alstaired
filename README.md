@@ -1,6 +1,10 @@
 <p align="center">
-  <img src="https://file.garden/Zq3GPYQkHypFo3Wi/sword%20meowl%20dislogue" width="400" height="150">
+  <img src="https://static.wikia.nocookie.net/vsbattles/images/2/29/Ultrapiss.png/revision/latest/scale-to-width-down/1000?cb=20211202102921" width="300" height="400">
 </p>
+
+
+<p align="center"> riyo⠀ᴼᴿ⠀rizz：　any ╱ pronouns</p>
 <p align="center">
-ᦏ ͜𓏼˚　<a href="https://rentry.co/reeyolu">rꫀᥒեrყ</a>　𓏼　<a href="https://reeyolu.atabook.org/">ຣigᥒ ᨡեᨡ</a>　𓏼 𝜗ৎ.
+<a href="https://rentry.co/reeyolu">rentry</a>　<a href="https://reeyolu.atabook.org/">sign ata</a>　<a href="https://en.pronouns.page/@reeyolu">prns.page</a>　<a href="https://guns.lol/reeyolu">guns.lol</a>
 </p>
+
