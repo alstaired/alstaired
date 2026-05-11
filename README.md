@@ -4,7 +4,7 @@
 <p align="center"> riyo⠀ᴼᴿ⠀rizz：　any ╱ pronouns</p>
 <div align="center">
   <details>
-    <summary><ins>tl;dr if u don't wanna bother looking into rentry + a bit of pt info</ins></summary>
+    <summary><ins>tl;dr regarding my rentry. scroll on th text right to left if on phone</ins></summary>
     <br>
 $\color{#cdbd91}{\text{the words stated above r true, but i also go by the names of the ponies i'm using, assuming u come from the webgame pony.town}}$
  $\color{#E2CA55}{\text{i like a lot of medias; namely, btales, ultrakill, indie cross (series), phighting, invincible, motm, and tf2. ++ many more i do not care 2 name}}$
