@@ -21,7 +21,7 @@ $\color{#cdbd91}{\text{the words stated above r true, but i also go by the names
      <br><br>
     $\color{#CB7D3D}{\text{i'm usually seen with friends. at bakery with a green pony named 'neaf', and at upper docks w da tagged people under my bio}}$
     <br>
-        $\color{#CB7D3D}{\text{feel free to int when i'm with neaf, but please iwc if i'm with my group of friends rather than the singular green thing that i cover}}$
+        $\color{#CB7D3D}{\text{feel free to int exclusively when i'm with neaf, but iwc if i'm with my group of friends rather than the lone green thing that i cover}}$
      <br><br>
         $\color{#a4523d}{\text{usually afk, offtab reading or playing roblox in the bg, or whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
         <br>
