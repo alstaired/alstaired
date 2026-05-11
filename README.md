@@ -17,7 +17,7 @@ $\color{#cdbd91}{\text{the words stated above r true, but i also go by the names
     
   $\color{#F1B351}{\text{c+h is ok for strangers and encouraged. do note i might not respond or leave out of the blue bc of awkwardness.}}$
   <br>
-    $\color{#F1B351}{\text{i'm open to making new friends but i bit a bit at first. ok? very anxious-inducing experiences for me imo}}$
+    $\color{#F1B351}{\text{i'm open to making new friends but i bite a bit at first. ok? very anxious-inducing experiences for me imo}}$
      <br><br>
     $\color{#CB7D3D}{\text{i'm usually seen with friends. at bakery with a green pony named 'neaf', and at upper docks w da tagged people under my bio}}$
     <br>
