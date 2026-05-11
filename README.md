@@ -6,13 +6,13 @@
   <details>
     <summary><ins>tl;dr regarding my rentry. scroll on th text right to left if on phone</ins></summary>
     <br>
-$\color{#cdbd91}{\text{the words stated above r true, but i also go by the names of the ponies i'm using,}}$ 
+$\color{#cdbd91}{\text{the words stated above r true, but i also go by the names of the ponies i'm using-}}$ 
     <br>
-    $\color{#cdbd91}{\text{assuming u come from the webgame pony.town. further on, check my prns.page for that kinda stuff}}$ 
+    $\color{#cdbd91}{\text{-assuming u come from the webgame pony.town. further on, check my prns.page for that kinda stuff}}$ 
      <br><br>
- $\color{#E2CA55}{\text{i like a lot of medias; namely, btales, ultrakill, indie cross (series), phighting, invincible, motm, and tf2. ++ many more}}$
+ $\color{#E2CA55}{\text{i like a lot of medias; namely, btales, ultrakill, indie cross (series), phighting, invincible, motm, and tf2. ++ many more-}}$
     <br>
-     $\color{#E2CA55}{\text{i do not care 2 name. i also like doing both taekwondo and gymnastics, if that counts. i have skills for art but not the passion}}$
+     $\color{#E2CA55}{\text{-i do not care 2 name. i also like doing both taekwondo and gymnastics, if that counts. i have skills for art but not the passion}}$
       <br><br>
     
   $\color{#F1B351}{\text{c+h is ok for strangers and encouraged. do note i might not respond or leave out of the blue bc of awkwardness.}}$
@@ -24,6 +24,10 @@ $\color{#cdbd91}{\text{the words stated above r true, but i also go by the names
         $\color{#CB7D3D}{\text{feel free to int when i'm with neaf, but please iwc if i'm with my group of friends rather than the singular green thing that i cover}}$
      <br><br>
         $\color{#a4523d}{\text{usually afk, offtab reading or playing roblox in the bg, or whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
+        <br>
+                $\color{#a4523d}{\text{if i'm online at ungodly hours in my timezone, it means i am pulling yet another all nighter}}$
+        <br><br>
+       ────────────────────────────────────
   </details>
 </div>
 <p align="center">
