@@ -18,7 +18,7 @@ $\color{#cdbd91}{\text{the words stated above r true, but i also go by the names
      $\color{#E2CA55}{\text{-i do not care 2 name. i also like doing both taekwondo and gymnastics, if that counts. i have skills for art but not the passion}}$
       <br><br>
     
-  $\color{#F1B351}{\text{c+h is ok for strangers and encouraged. do note i might not respond or leave out of the blue bc of awkwardness.}}$
+  $\color{#F1B351}{\text{c+h is ok for strangers and encouraged. i do not roleplay!! do note i might not respond bc of awkwardness.}}$
   <br>
     $\color{#F1B351}{\text{i'm open to making new friends but i bite a bit at first. ok? very anxious-inducing experiences for me imo}}$
      <br><br>
