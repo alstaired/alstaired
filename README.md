@@ -21,9 +21,9 @@ $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$
   <br>
     $\color{#F1B351}{\text{player/jon (bt), v2 (ultrakill), sword (p!), shelly (ddw), ms. pauling (tf2)}}$
      <br><br>
-    $\color{#CB7D3D}{\text{i'm ok to makinf new friends. js a bit anxious when doing so}}$
+    $\color{#CB7D3D}{\text{isfj 9w8 sx/so 962 sx9sx6sx2 felv sei neugood phlegmel}}$
     <br>
-        $\color{#CB7D3D}{\text{coz i am lowkey like dat forrel.}}$
+        $\color{#CB7D3D}{\text{my typology or whatever #TuffOrNot??!}}$
      <br><br>
         $\color{#a4523d}{\text{usually afk, offtab doing whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
         <br>
