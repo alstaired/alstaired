@@ -23,7 +23,7 @@ $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$
      <br><br>
     $\color{#CB7D3D}{\text{also forsaken + house of puso fandom iwec u guys r lowkey not tuff}}$
     <br>
-        $\color{#CB7D3D}{\text{basic dni critera. don't be bigoted towards me}}$
+        $\color{#CB7D3D}{\text{basic dni critera. don't be bigoted towards me. -13 and 25+ dni}}$
      <br><br>
         $\color{#a4523d}{\text{usually afk, offtab doing whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
         <br>
