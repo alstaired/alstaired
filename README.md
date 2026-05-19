@@ -21,13 +21,13 @@ $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$
   <br>
     $\color{#F1B351}{\text{player/jon (bt), v2 (ultrakill), sword (p!), shelly (ddw), ms. pauling (tf2)}}$
      <br><br>
-    $\color{#CB7D3D}{\text{isfj 9w8 sx/so 962 sx9sx6sx2 felv sei neugood phlegmel}}$
+    $\color{#CB7D3D}{\text{also forsaken + house of puso fandom iwec u guys r lowkey not tuff}}$
     <br>
-        $\color{#CB7D3D}{\text{my typology or whatever hashtag TuffOrNot??!}}$
+        $\color{#CB7D3D}{\text{basic dni critera. don't be bigoted towards me}}$
      <br><br>
         $\color{#a4523d}{\text{usually afk, offtab doing whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
         <br>
-                $\color{#a4523d}{\text{if i'm online at ungodly hours in my timezone, it means i am pulling yet another all nighter}}$
+                $\color{#a4523d}{\text{i'm prolly pulling another allnighter if u see me}}$
         <br><br>
        ────────────────────────────────────
   </details>
