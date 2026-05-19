@@ -7,26 +7,25 @@
 <p align="center"> riyo⠀ᴼᴿ⠀rizz：　any ╱ pronouns</p>
 <div align="center">
   <details>
-    <summary><ins>pony.town info. scroll on text right 2 left if on phone</ins></summary>
+    <summary><ins>more pt info. scroll right to left if on phone</ins></summary>
     <br>
-$\color{#cdbd91}{\text{the words stated above r true, but i also go by the names of the ponies i'm using-}}$ 
+$\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$ 
     <br>
-    $\color{#cdbd91}{\text{i can be seen, referred to as however. further on, check my prns.page for that kinda stuff}}$ 
+    $\color{#cdbd91}{\text{c+h ok, iwec and w2i always. i don't rp. i bite a lil bit!}}$ 
      <br><br>
- $\color{#E2CA55}{\text{i like a lot of medias; namely, btales, ultrakill, indie cross (series), phighting, invincible, motm, and tf2. ++ many more-}}$
+ $\color{#E2CA55}{\text{i like btales, ultrakill, indie cross (series), phighting, motm, and tf2. ++ many more}}$
     <br>
-     $\color{#E2CA55}{\text{-i do not care 2 name. i also like doing both taekwondo and gymnastics, if that counts. i have skills for art but not the passion}}$
+     $\color{#E2CA55}{\text{i'm doing both taekwondo and gymnastics. i draw sometimes}}$
       <br><br>
-    
-  $\color{#F1B351}{\text{c+h is ok for strangers and encouraged. i do not roleplay!! do note i might not respond bc of awkwardness.}}$
+  $\color{#F1B351}{\text{my heavykins from heaviest 2 least}}$
   <br>
-    $\color{#F1B351}{\text{i'm open to making new friends but i bite a bit at first. ok? very anxious-inducing experiences for me imo}}$
+    $\color{#F1B351}{\text{player/jon (bt), v2 (ultrakill), sword (p!), shelly (ddw), ms. pauling (tf2)}}$
      <br><br>
-    $\color{#CB7D3D}{\text{i'm usually seen with friends. at bakery with a green pony named 'neaf', and at upper docks w da tagged people under my bio}}$
+    $\color{#CB7D3D}{\text{i'm ok to makinf new friends. js a bit anxious when doing so}}$
     <br>
-        $\color{#CB7D3D}{\text{feel free to int exclusively when i'm with neaf, but iwc if i'm with my group of friends rather than the lone green thing that i cover}}$
+        $\color{#CB7D3D}{\text{coz i am lowkey like dat forrel.}}$
      <br><br>
-        $\color{#a4523d}{\text{usually afk, offtab reading or playing roblox in the bg, or whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
+        $\color{#a4523d}{\text{usually afk, offtab doing whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
         <br>
                 $\color{#a4523d}{\text{if i'm online at ungodly hours in my timezone, it means i am pulling yet another all nighter}}$
         <br><br>
