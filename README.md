@@ -7,11 +7,11 @@
 <p align="center"> riyo⠀ᴼᴿ⠀rizz：　any ╱ pronouns</p>
 <div align="center">
   <details>
-    <summary><ins>tl;dr regarding my rentry. scroll on th text right to left if on phone</ins></summary>
+    <summary><ins>pony.town info. scroll on text right 2 left if on phone</ins></summary>
     <br>
 $\color{#cdbd91}{\text{the words stated above r true, but i also go by the names of the ponies i'm using-}}$ 
     <br>
-    $\color{#cdbd91}{\text{-assuming u come from the webgame pony.town. further on, check my prns.page for that kinda stuff}}$ 
+    $\color{#cdbd91}{\text{i can be seen, referred to as however. further on, check my prns.page for that kinda stuff}}$ 
      <br><br>
  $\color{#E2CA55}{\text{i like a lot of medias; namely, btales, ultrakill, indie cross (series), phighting, invincible, motm, and tf2. ++ many more-}}$
     <br>
