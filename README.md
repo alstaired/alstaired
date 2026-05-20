@@ -33,6 +33,6 @@ $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$
   </details>
 </div>
 <p align="center">
-<a href="https://rentry.co/reeyolu">rentry</a>　<a href="https://reeyolu.atabook.org/">sign ata</a>　<a href="https://en.pronouns.page/@reeyolu">prns.page</a>　<a href="https://guns.lol/reeyolu">guns.lol</a>
+<a href="https://rentry.co/reeyolu">rentry</a>　<a href="https://reeyolu.atabook.org/">sign ata</a>　<a href="https://en.pronouns.page/@reeyolu">prns.page</a>　<a href="https://guns.lol/reeyolu">guns.lol</a> <a href="https://reeyolu.straw.page">straw.page</a>
 </p>
 
