@@ -1,8 +1,8 @@
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&size=35&duration=2000&pause=200&color=A04F3C&center=true&vCenter=true&width=435&lines=MANKIND+IS+DEAD.;BLOOD+IS+FUEL.;HELL+IS+FULL." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&duration=3000&pause=500&color=FF0000&center=true&vCenter=true&width=500&lines=I+jest%2C+of+course.;I+appreciate+your+company+here%2C+in+fact." alt="Typing SVG" /></a>
 </p>
 <p align="center">
-  <img src="https://static.wikia.nocookie.net/vsbattles/images/2/29/Ultrapiss.png/revision/latest/scale-to-width-down/1000?cb=20211202102921" width="300" height="400">
+  <img src="https://mothcpu.net/dect/02.png" width="400" height="250">
 </p>
 <p align="center"> riyo⠀ᴼᴿ⠀rizz：　any ╱ pronouns</p>
 <div align="center">
