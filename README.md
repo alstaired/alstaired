@@ -4,10 +4,10 @@
 <p align="center">
   <img src="https://mothcpu.net/dect/02.png" width="400" height="250">
 </p>
-<p align="center"> riyo⠀ᴼᴿ⠀rizz：　any ╱ pronouns</p>
+
 <div align="center">
   <details>
-    <summary><ins>more pt info. scroll right to left if on phone</ins></summary>
+    <summary>riyo⠀ᴼᴿ⠀rizz：　any ╱ pronouns，click4more</summary>
     <br>
 $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$ 
     <br>
