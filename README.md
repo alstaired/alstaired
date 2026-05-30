@@ -19,7 +19,7 @@ $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$
       <br><br>
   $\color{#F1B351}{\text{my heavykins from heaviest 2 least}}$
   <br>
-    $\color{#F1B351}{\text{player/jon (bt), v2 + minos (ultrakill), sword + katana (p!), shelly + gigi (ddw), ms. pauling (tf2)}}$
+    $\color{#F1B351}{\text{player/jon (bt), v2 + minos (ultrakill), sword + coil (p!), shelly + gigi (ddw), ms. pauling (tf2)}}$
      <br><br>
     $\color{#CB7D3D}{\text{also forsaken + house of puso fandom iwec u guys r lowkey not tuff}}$
     <br>
