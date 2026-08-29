@@ -27,7 +27,7 @@ $\color{#cdbd91}{\text{hide me = i own u. slash halfjoke ok?}}$
      <br><br>
         $\color{#a4523d}{\text{usually afk, offtab doing whatever-the-hell-it-is-im-doing. just w2i, ok? (-q-;;)}}$
         <br>
-                $\color{#a4523d}{\text{i'm prolly pulling another allnighter if u see me}}$
+                $\color{#a4523d}{\text{diagnised with mdd / severe depression :p. iwc}}$
         <br><br>
        ────────────────────────────────────
   </details>
